@@ -2,7 +2,7 @@
 # I'M SAMPATI DOTASARA  
 
 **WEB’S NEVER LOOKED THIS GOOD, AND NEITHER HAS ML**  
-[![Banner](banner.png)](https://linkedin.com/in/sampati-dotasara)
+
 
 # 👋 Hi there, I'm Sampati Dotasara  
 
